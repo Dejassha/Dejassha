@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm Dejassha A S😇
+# Hi there! 👋 I'm Dejassha Saravanan😇
 
 ## 🚀 Innovator | AI  Explorer | FullStack Developer | Problem Solver
 
